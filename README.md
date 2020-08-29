@@ -16,6 +16,8 @@ Dimanche 8h30 départ pour la journée (30 de route jusqu'à Pied-de-Borne) - co
 Dimanche 9h Canyoning (70€ p/p) https://www.face-sud.com/canyoning-ardeche-cevennes   
 Dimanche 19h fin du canyoning retour au camping   
 
+Lundi proposition
+https://www.visorando.com/randonnee-le-rieussec/
 
 # Liens
 https://www.ardeche-guide.com/activites/accompagnateurs-speleo-escalade?subselection=44112   
